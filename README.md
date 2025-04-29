@@ -11,4 +11,4 @@ in the end they showed how the plot ends without living any clifhanger thus pres
 The plot of the movie plus the sci-fi vibes made an impact for me when I was a child that till I know sci-fi is my go to movies when I want to watch some movies in the side overall I like how the movies shows a well
 and peaceful environment and suddenly eerie and post apocalyptic vibes giving more a scary vibes**
 # Cloverfield
-**Clover field is the last in my list and this is also one of the most good movies that I watch back then I remember watching it at night and enjoyed it till the end cause of the documentary type of movie that I even though it was a real thing that had happened back then.**
+**Clover field is the last in my list and this is also one of the most good movies that I watch back then I remember watching it at night and enjoyed it till the end cause of the documentary type of movie that I even though it was a real thing that had happened back then..**
